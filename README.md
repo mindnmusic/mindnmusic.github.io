@@ -1,1 +1,1 @@
-Welcome to my home page. Please hold on til I figure out web design.
+Welcome to Gayathri Balaji's home page. Please hold on til Krishna figures out web design.
